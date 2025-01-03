@@ -5,4 +5,4 @@
 
 ## 👋 About Me
 
-I'm an Economics graduate student at Washington State University, specializing in Econometrics and Quantitative Economics. With a background in accounting and economics, I bring a unique blend of financial acumen and data analysis skills to the table.
+Hello! I am a Masters of Science in Economics graduate with a passion for finding patterns and data-driven policy solutions. My experience spans from managing foreign exchange and monetary policy at Bhutan's Central Bank to researching Washington State's homelessness and housing insecurity and analyzing City of Saint Paul's economic development initiatives. Currently seeking for new opportunities in economic research and policy analysis.
